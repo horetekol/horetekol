@@ -7,5 +7,5 @@
 - ⚡ Fun fact: ...
 hd4565
 <!---ddd95
-horetekol/horetekol is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+horetekol/horetekol is a ✨ special ✨ repositorsdfy because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.63fhghfg

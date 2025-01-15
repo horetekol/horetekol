@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...4sf
 - 333
-- 😄 Pronouns: ...wesdfweq465
+- 😄 Pronouns: ...wesdfweq465xvc
 - ⚡ Fun fact: ...dfgsdf
 hd4565sdfsfdh45qweqw
 <!---41

@@ -5,7 +5,7 @@
 - 📫 How to reach me ...4sfk,j
 - 333wewe
 - 😄 Pronouns: ...wesdfweq465xvcergsf
-- ⚡ Fun fact: ...dfgsdfdgfbgf
+- ⚡ Fun fact: ...dfgsdfdgfbgfdsf
 hd4565sdfsfdh45qweqw
 <!---tgrrt
 horetekol/horetekol is a ✨ special ✨ repositorsdfy becssdasduse its `README.md` (this file) appears on your GitHub profile.

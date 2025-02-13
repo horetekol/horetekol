@@ -3,7 +3,7 @@ yth- 👋 Hi, I’m @horetekol
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...4sfk,j.lkj
-- 333wewe
+- wewewe
 - 😄 Pronouns: ...wesdfweq465xvcergsf
 - ⚡ Fun fact: ...dfgsdfdgfbgfdsfvcbbcvdgfsfd
 hd4565sdfsfdh45qweqw

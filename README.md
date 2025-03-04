@@ -2,7 +2,7 @@ ghbnbnvdsfsfdyth- 👋 Hi, I’m @horetekol
 - 👀 I’m interested in ...hf66
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...ger
-- 📫 How to reach me ...4sfk,j.lkjgbf
+- 📫 How to reach me ...4sfk,j.lkjgbfdfb
 - wewewe
 - 😄 Pronouns: ...wesdfweq465xvcergsfgffvf
 - ⚡ Fun fact: ...dfgsdfdgfbgfdsfvcbbcvdgfsfdsd

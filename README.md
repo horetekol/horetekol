@@ -5,7 +5,7 @@ ghbnbnvdsfsfdyth- 👋 Hi, I’m @horetekol
 - 📫 How to reach me ...4sfk,j.lkjgbfdfbbgffgdf
 - wewewe
 - 😄 Pronouns: ...wesdfweq465xvcergsfgffvfjyfg
-- ⚡ Fun fact: ...dfgsdfdgfbgfdsfvcbbcvdgfsfdsdbdffdbfgfbgbgf
+- ⚡ Fun fact: ...dfgsdfdgfbgfdsfvcbbcvdgfsfdsdbdffdbfgfbgbgfsfsd
 uh
 <!---tgrrt26223gbffgasa
 horetekol/horetekol is a ✨ special ✨ repositorsdfy becssdasduse its `README.md` (thirtgs file) appears on your GitHub profile.

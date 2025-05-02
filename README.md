@@ -4,7 +4,7 @@ kj..ghbnbnvdsfsfdyth- 👋 Hi, I’m @horetekol
 - 💞️ I’m looking to collaborate on ...gersdffds44dvdddd
 - 📫 How to reach me ...4sfk,j.lkjgbfdfbbgffgdfvbnbvzxcxzc5263xvckjkj.kbgfbfgfgfsdsdfsd
 - wewewezxcxcz
-- 😄 Pronouns: ...wesdfweq465xvhdgf
+- 😄 Pronouns: ...wesdfweq465xvhdgfvfddfdd
 - ⚡ Fun fact: ...dfgsdfdgfbgfdsfvcbbcvdgfsfdsdbdffdbfgfbgbgfsfsd33zxcxz3fdf
 uhnmreggersggxvcxvxcxcxx
 <!---tgrrt26223gbffgasawdwdwd

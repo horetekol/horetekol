@@ -1,11 +1,11 @@
-mghvbkj..ghbnbnvdsfsfdyth- 👋 Hi, I’m @horetekol
+sfdfsdbkj..ghbnbnvdsfsfdyth- 👋 Hi, I’m @horetekol
 - 👀 I’m interested in ...hf6
 - 🌱 I’m currently learning ...jjj
 - 💞️ I’m looking to collaborate on ...gersdffds44dvdddddsfdsdsdcfdfcdfcdf
 - 📫 How to reach me ...4sfk,j.lkjgbfdfbbgffgdfvbnbvzxcxzc5263xvckjkj.kbgfbfgfgfsdsdfsdghhgnghgtrrtger
 - wewewezxcxczvdsvdsvsddbfdbv
 - 😄 Pronouns: ...wesdfweq465xvhdgfvfddfddsdfdgffgdf
-- ⚡ Fun fact: ...dfgsdfdgfbgfdsfvcbbcvdgfsfdsdbdffdbfgfbgbgfsfsd33zxcxz3fdf
+- ⚡ Fun fact: ...dfgsdfdgfbgfdsfvcbbcvdgfsfdsdbdffdbfgfbgbgfsfsd33zxcxz3fdfvsfd
 uhnmreggersggxvcxvxcxcxx
 <!---tgrrt26223gbffgasawdwdwd
 horetekol/horetekol is a ✨ special ✨ repositorsdfy becssdasduse its `README.md` (thirtgs file) appears on your GitHub profile.
